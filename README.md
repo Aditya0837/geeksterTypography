@@ -1,1 +1,1 @@
-# geeksterTypography : https://sachinbiswal.github.io/geeksterTypography/
+# geeksterTypography : https://Aditya0837.github.io/geeksterTypography/
